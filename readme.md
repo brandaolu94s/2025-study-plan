@@ -1,4 +1,4 @@
-# **Plano de Estudos Avançado**
+# **Plano de Estudos 2025**
 
 ## **Objetivo Principal**
 
